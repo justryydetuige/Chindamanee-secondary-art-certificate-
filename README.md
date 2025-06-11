@@ -1,1 +1,0 @@
-# Chindamanee-secondary-art-certificate-
